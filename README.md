@@ -1,2 +1,0 @@
-# eagmcdiscordactivity.github.io
-something
